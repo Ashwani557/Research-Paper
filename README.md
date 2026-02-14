@@ -5,7 +5,7 @@
 International Journal of All Research Education and Scientific Methods (IJARESM)  
 ISSN: 2455-6211  
 Volume 12, Issue 12, December 2024  
-Available at: www.ijaresm.com  
+ 
 
 ---
 
